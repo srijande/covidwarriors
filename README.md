@@ -1,1 +1,1 @@
-# covidwarriors
+# https://thesrijande.github.io/covidwarriors/
